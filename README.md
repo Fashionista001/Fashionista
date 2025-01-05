@@ -1,1 +1,1 @@
-# Fashionista.github.io
+# Fashionista
